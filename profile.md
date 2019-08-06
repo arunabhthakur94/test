@@ -1,1 +1,1 @@
-# SPARTANS - <Arunabh Singh>
+# SPARTANS - Arunabh Singh
