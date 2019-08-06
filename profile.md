@@ -1,1 +1,0 @@
-Arunabh Singh Thakur
